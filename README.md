@@ -1,2 +1,2 @@
-Tập hợp các đồ án 
+Tập hợp các đồ án nhỏ
 
